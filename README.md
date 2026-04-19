@@ -1,0 +1,2 @@
+# AMD30
+SITUS GACOR
